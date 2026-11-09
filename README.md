@@ -1,0 +1,2 @@
+# Tekno
+tugas
